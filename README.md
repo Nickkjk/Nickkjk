@@ -13,9 +13,10 @@
 
 ☕Coffee & Music🎸 
 
-**`swear on my life, I always try...better luck next time`**
+**`I'm in love with my self destruction`**
 
-![original (2)](https://user-images.githubusercontent.com/103552841/182052717-10a0c0cb-4581-4f05-8a9a-27d7e718f00b.gif)
+![original](https://i.pinimg.com/originals/fb/5b/d1/fb5bd184cad927b617e31c272a4337ca.gif)
+
 [![Nickkjk's GitHub stats](https://github-readme-stats.vercel.app/api?username=Nickkjk&show_icons=true&theme=dark)](https://github.com/Nickkjk/github-readme-stats) 
 
 ![html](https://img.shields.io/badge/HTML-239120?style=for-the-badge&logo=html5&logoColor=white)
