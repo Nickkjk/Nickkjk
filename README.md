@@ -1,15 +1,13 @@
-## Alô alô marciano🖖🏻
+## hm
 
-### Nick aqui🤘🏻
-*Colègio Estadual Meneleu de Almeida Torres* 
+### Nick🤘🏻
 
-📚Estudante 1° Ensino Médio 
+*Colégio Estadual Meneleu de Almeida Torres* 
+
+📚1º year of high school
 
 
-
-🎨Pintura, Teatro e Desenho🎭
-
-🏳‍🌈Ele/Dele 
+🎨Performing and Visual Arts🎭
 
 ☕Coffee & Music🎸 
 
